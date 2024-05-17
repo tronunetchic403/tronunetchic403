@@ -13,4 +13,4 @@ You can click the Preview link to take a look at your changes.
 Hi, I,m @tronunetchic403 
 -----I am intrested in simple ways to pen and have fun learning code ect.hopefully I can make some paper while im at it Its hard out here for a pimp I am looking for anyone who can help or 
 could use my help and benifit both of us while building new contacts and learning how to make paper .I have some experience with carding and c out for some lost contacts.Any questions contact me 
-at 
+
